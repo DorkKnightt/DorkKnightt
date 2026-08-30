@@ -13,6 +13,9 @@
 
 <p align="center"> $${\color{#1367a4} w2i \space recommended \space since \space i'm \space mostly \space semi afk! \space /ask \space before \space c+h!! }$$
 
+<p align="center"> $${\color{#1196c2} Sign \space my \space Straw!}$$
+<p align="center"> ╰➤ <a href="https://dorkkightt.straw.page">strawpage</a>
+
 
 <p align="center">
   <img width="736" height="300" alt="✧_ ┊Tim Drake pfp" src="https://github.com/user-attachments/assets/07fdeb5a-2b15-47c9-bb06-f8c360075cce" />
