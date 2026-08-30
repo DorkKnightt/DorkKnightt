@@ -1,4 +1,4 @@
-# <p align="center">$${\color{#1196c2} READ ME!!}$$
+# 
 
 ![](https://komarev.com/ghpvc/?username=DorkKightt&color=2a2a2a&style=for-the-badge&label=Hellaw)
 
