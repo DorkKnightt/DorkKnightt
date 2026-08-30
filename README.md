@@ -1,6 +1,9 @@
 # <p align="center">$${\color{#1196c2} READ ME!!}$$
 
-![](https://komarev.com/ghpvc/?username=DorkKightt&color=2a2a2a&style=for-the-badge&label=Hellaw) 
+![](https://komarev.com/ghpvc/?username=DorkKightt&color=2a2a2a&style=for-the-badge&label=Hellaw)
+
+<img width="736" height="300" alt="Tim Drake x Bernard Dowd - Spiderman Kisses" src="https://github.com/user-attachments/assets/6a3adc6d-015a-49e3-96b2-844b37b20098" />
+
 
 </p>
 <p align="center"> $${\color{#1367a4} Robin \space /Francis \space / Fran \space / Character \space cos}$$
@@ -12,4 +15,4 @@
 
 
 <p align="center">
-  <img width="736" height="1054" alt="Tim drake (Art by_ wijcai On X)" src="https://github.com/user-attachments/assets/81191954-b3d8-45a7-ab32-b8b867c84ad0" />
+  <img width="736" height="300" alt="✧_ ┊Tim Drake pfp" src="https://github.com/user-attachments/assets/07fdeb5a-2b15-47c9-bb06-f8c360075cce" />
