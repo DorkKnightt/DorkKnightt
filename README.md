@@ -8,6 +8,7 @@
 </p>
 <p align="center"> $${\color{#1367a4} Robin \space /Francis \space / Fran \space / Character \space cos}$$
 <p align="center">$${\color{#1196c2} I\space go \space by \space He / \space It}$$
+  <p align="center"> $${\color{#1367a4} Asexual \space /Demiromantic \space / Gay \space / Maybe \space curious..}$$
 <p align="center"> $${\color{#1367a4} 17 - 18 .\space Age \space range \space 16 - 25 \space unless \space already \space friends. \space / Eng . Esp}$$
 <p align="center"> $${\color{#1196c2} Diagnosed \space Social \space Anxiety \space Disorder! \space (SAD) }$$
 
