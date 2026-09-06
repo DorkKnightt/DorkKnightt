@@ -5,6 +5,7 @@
 <p align="center">
 <img width="736" height="300" alt="Tim Drake x Bernard Dowd - Spiderman Kisses" src="https://github.com/user-attachments/assets/6a3adc6d-015a-49e3-96b2-844b37b20098" />
 <p align="center"> $${\color{#bcccdc} please \space tell \space me \space if \space i'm \space sitting \space over \space someone \space or \space if \space someone \space is \space sitting \space over \space me, \space as \space I \space have \space hidden \space many \space players! \space Thanks..}$$
+<p align="center"> $${\color{#bcccdc} Big \space Tim \space Drake \space and \space Nightwing \space fictkin!}$$
 
 </p>
 <p align="center"> $${\color{#1367a4} Robin \space /Francis \space / Fran \space / Character \space cos}$$
